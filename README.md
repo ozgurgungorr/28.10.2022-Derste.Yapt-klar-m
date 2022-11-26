@@ -1,2 +1,2 @@
-# 28.10.2022-Derste.Yapt-klar-m
+# 28.10.2022-Derste yaptıklarım
 Derste yaptıklarım
